@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @SoapySmith
+- 👀 I’m interested in all kinds of Blockchain stuff
+- 🌱 I’m currently learning a lot as I go
+- ⚡ Fun fact: I'm super curious and love a good gamble
